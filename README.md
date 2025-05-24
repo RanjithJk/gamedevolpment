@@ -51,3 +51,4 @@
 
 
 ## OUTPUT:
+![Black Minimalist Vocal Singing Classes Poster](https://github.com/user-attachments/assets/f37827a8-b091-42ba-9036-54c98f3bbc89)
